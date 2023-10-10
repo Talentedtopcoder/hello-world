@@ -68,3 +68,104 @@ This section has moved here: [https://facebook.github.io/create-react-app/docs/d
 ### `npm run build` fails to minify
 
 This section has moved here: [https://facebook.github.io/create-react-app/docs/troubleshooting#npm-run-build-fails-to-minify](https://facebook.github.io/create-react-app/docs/troubleshooting#npm-run-build-fails-to-minify)
+
+
+Skype-info
+devlopersuper1212@gmail.com
+hdh961212
+grigorykotov126@outlook.com
+mastergrigory123!@#
+
+
+1: linked in 
+-CJC: 
+Troy Mishigan:
+Agron kerchita
+my skyephone: +1 202 991 7895
+skypee:live:.cid.e8449ce622c53d1d
+(Skypephone)benjaminstewart93727@gmail.com
+C:\Program Files (x86)\Microsoft\Skype for Desktop\Skype.exe --secondary
+USA proxy:
+octor1:115.167.63.231:12324:14a9fe93b0bb3:f50d0738ab
+Gmail: brightmoonone03727@gmail.com
+Kjm19691128
+
+-PJR
+Profile: linkedin.com/in/richard820
+Name: Richard Moore
+Birth:1989.8.20
+Address:6429 Miami Ave Glen Burnie, MaryLand, 21060, US
+ZIP:21060
+SSN:216252334
+gmail: petepiao1017@gmail.com
+password: pak20001017
+kjm701128
+
+
+2: Use-gmail:
+brightmoonone93727@gmail.com
+brightmoontwo93727@gmail.com
+benjaminstewart93727@gmail.com
+brightmoonone03727@gmail.com
+brightmoonone961031@gmail.com
+
+3: flowCV: 
+	      benjaminstewart93727@gmail.com(share)
+4: github: 
+benjaminstewart93727@gmail.com
+brightmoonone93727@outllook.com
+https://github.com/TopCoderBen
+5: ChatGpt: 
+benjaminstewart93727:brightmoon
+phone number:+62 83836372564
+verify:83133949800
+6: Octor 
+sergey199643@mail.ru strong123!@#
+7: IP Message 
+jin myong:rainbow
+jong su:spear
+jisong:washin
+dahyok:Nike
+kumhyok:!7-chonsal
+jusong:leo
+8: Address
+--Hong Kong--
+Street:  51 Parkes St
+City:   Yau Ma Tei
+State/province/area:    Hong Kong
+Phone number  2341 1616
+Country calling code  +852
+
+=======
+---Germany--
+Street: 29 Anna-Maria-Müller-Straße
+District/Borough: Lichtenberg
+City: Berlin
+Country: Deutschland
+telephone:    0171 2172686
+
+---USA---
+965 KIRTS BLVD
+ZIP Code:48084
+Troy Mishigan:
+my skyephone:+1 202 991 7895
+
+===canada===
+Phone: +1 6078217775
+Zip code: L4K 
+Address: 4278 Eagle Rd, 
+Toronto Ontario M8Z-4H4 Canada
+
+Client-
+muditdahiya@hotmail.com Canada-freelancer-upwork
+
+===share===
+1- brightmoonone93727@gmail.com- portfolio
+2- brightmoontwo93727@gmail.com-1  
+3-benjaminstewart93727@gmail.com-1  NLP
+https://drive.google.com/file/d/1NxbOQKRgTVI6tygOp7xhoIZnTVhRjqaA/view?usp=sharing
+4.brightmoonone961031@gmail.com-1 
+video
+https://drive.google.com/file/d/1zrL1KNFD3KJ-ZYeKAca3JXlGABdZAUNC/view?usp=sharing
+
+
